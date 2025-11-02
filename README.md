@@ -5,6 +5,6 @@ I have LOADS of interests.. too many to name really :/ but if you wanna know som
 ALSO !!  sign my ata please (˶ᵔ ᵕ ᵔ˶) ‹𝟹 <br>
 <br>
 <br>
-<img width="800" height="550" alt="Screenshot 2025-10-20 202904" src="https://github.com/user-attachments/assets/83d6e3a3-5b99-412d-91d1-d5e327290474" /> <br>
+<img width="900" height="650" alt="Screenshot 2025-10-20 202904" src="https://github.com/user-attachments/assets/83d6e3a3-5b99-412d-91d1-d5e327290474" /> <br>
 
 ![](https://komarev.com/ghpvc/?username=ethers-ethos&color=blueviolet)
